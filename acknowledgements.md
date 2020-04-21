@@ -1,5 +1,3 @@
-# Real Hype
-
 # Acknowledgements
 
 #### Awareness
@@ -24,5 +22,20 @@ Actions in reality find existence right from virtual experiences, based on infor
 Advanced knowledge has always been an important element to rule others. Without the correct information at the right time we will not be able to make good decisions and we fall behind while catching up. In our modern globalized, electrified and partly virtual world one misunderstanding or information gap can lead to a lot of catching up to do. 
 
 In cyberspace public information is very fragile. The amount of commercially driven information is leading, impacting every corner of the internet starting with G..... search. Previous results do not show up the next day, not even in the lower result pages. Links change, domains black-out or the same key-word-search suddenly brings references to different articles with a twist. Luckely, valued topics can not be kept secret. Therefore, if you question the reliability of any statement following, look it up, every-thing, take the key part of the sentence and search the web. Google.com, duckduckgo.com, bing.com, yahoo.com anywhere. It will help a little and proofs how your world view is controlled by information from the virtual domain.
+
+### Bamboozle 
+
+#### Teachings from Carl Sagan
+
+“One of the saddest lessons of history is this: If we’ve been bamboozled long enough, we tend to reject any evidence of the bamboozle. We’re no longer interested in finding out the truth. The bamboozle has captured us. It’s simply too painful to acknowledge, even to ourselves, that we’ve been taken. Once you give a charlatan power over you, you almost never get it back.” 
+Carl Sagan
+
+“An extraterrestrial being, newly arrived on Earth - scrutinizing what we mainly present to our children in television, radio, movies, newspapers, magazines, the comics, and many books - might easily conclude that we are intent on teaching them murder, rape, cruelty, superstition, credulity, and consumerism. We keep at it, and through constant repetition many of them finally get it.” 
+Carl Sagan
+
+
+We can not deny the fact that it is the mainstream media that control what the majority of men and women believe. The education at primairy schools, highschools, colleges and universities, all follow the mainstream media and teaches subjects propossed and discussed by the mainstream media. 
+
+And when the majority is asked to vote, they vote what they believe. This is how modern democracies fail to see they are corrupted by the power of those who control the media, completely bamboozled.
 
 
