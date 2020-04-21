@@ -1,5 +1,13 @@
 #### Climate debate and weather modification
 
+CLimate change, a Non-scientific consenses and fraud supporting claim: 
+With 100 years of measurements on a subject older than 3 billion years and with so many different components nothing can be concluded or predicted on a scientific basis. The idea of man-made climate change is a consensus, not a scientific proven fact. 
+
+When an hypothesis is not based on factual science, all other proof of such a hypothesis is in fact a fraud.
+
+Geoengineering:
+In the climate-debate there is a remarkable silence about all the geoengineering activities that are happening. See atmospherical.md
+
 If there is climate change, a major contributor to that change might also be the long history of pursuing weather control with technological, scientific and chemical means, mostly classified militairy projects.
 
 Many of the patented weather modification strategies are based on environmental changes through use of hazardous materials and technologies that also threaten the environment and human health.
