@@ -1,6 +1,6 @@
-# Welcome in the Hyperreal world where fiction becomes reality. 
+# Welcome in the Hyperreal world
 
-Observations and philosophy into the 21st century and beyond
+Observations and philosophy into the 21st century and beyond, where fiction becomes reality. 
 
 ![](https://raw.githubusercontent.com/genboy/hyperreal/master/sources/documents/2020/album_madame-x_deluxe_back.jpg)
 
