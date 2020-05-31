@@ -1,20 +1,21 @@
 ## World hack 2.0
-#### Mindcontrol, NLP and trauma based programming sustained by modern AI 
+#### Mindcontrol, NLP and trauma based programming 
 
-Part 1 of world war III was followed by the war on terror, all in old fashion television propaganda. Skulls and Bones & Co skeemed to reached their goal to secure and extend power while making more money in war, technology, oil and farmaceutical industries. Since then internet technologies have grown exponentionally, surveilance practices have been perfectionized and daily life is more fractionized then ever before. 
-And now the money is almost gone, vaporized up in the air, the whole world economic system is projected to collapse unless more depths can be made. Oh, here is Covid19, together with 5G networks, straight from our worlds largest and most powerfull dictatorial state China.
+Here is Covid19, together with 5G networks, straight from our worlds largest and most powerfull dictatorial state China.
 
 And how does your goverment respond to this threat? Does science and rationality solve the puzzle?
 No, far from that. Goverments worldwide act exactly as China does! (unless you live in Sweden).
 Goverments all around the globe sweaping up fear and uncertainty, pushing fascist law to extend control with all modern propaganda- and mindcontrol- tools available, as a dictatorial state does. And this is only the beginning of a never ending worldwide push into uncertainty, fear and destruction.
 
+In the mean time research and fact checks are done; 
+https://swprs.org/a-swiss-doctor-on-covid-19/
+because https://swprs.org/the-propaganda-multiplier/
 
 # Do people understand their Mindfuck?
 
 Governments around the world are taking extreme measures to prevent the spread of the corona virus. War is called and people's freedom is curtailed.
 
-On what data do governments base the risk to the population? Is there a good reason for additional measures in addition to the measures that are taken annually during the flu (influenza) season?
-
+On what data do governments base the risk to the population? Is there a really, really good reason for additional measures in addition to the measures that are taken annually during the flu (influenza) season? Measures that ensure financial collapse and much more poverty world wide. The financial collapse has not been visible because AI-brookers world wide do not need a split second to buy up the sunken stocks. {? proof]
 A number of important matters and findings are not discussed in the media or by the government, while the necessary data can be found simply on the internet and even on the government's website.
 
 ### The origin
