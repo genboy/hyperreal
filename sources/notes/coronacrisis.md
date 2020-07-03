@@ -1,4 +1,4 @@
-## World hack 2.0
+## World hack 2.0 - corrona virusses patented in 2006 - vaccine patented in 2019
 #### Mindcontrol, NLP and trauma based programming 
 
 Here is Covid19, together with 5G networks, straight from our worlds largest and most powerfull dictatorial state China.
@@ -11,23 +11,29 @@ In the mean time research and fact checks are done;
 https://swprs.org/a-swiss-doctor-on-covid-19/
 because https://swprs.org/the-propaganda-multiplier/
 
-# Do people understand their Mindfuck?
+# What risk?
 
 Governments around the world are taking extreme measures to prevent the spread of the corona virus. War is called and people's freedom is curtailed.
 
-On what data do governments base the risk to the population? Is there a really, really good reason for additional measures in addition to the measures that are taken annually during the flu (influenza) season? Measures that ensure financial collapse and much more poverty world wide. The financial collapse has not been visible because AI-brookers world wide do not need a split second to buy up the sunken stocks. {? proof]
+On what data do governments base the risk to the population? Is there a really, really good reason for additional measures in addition to the measures that are taken annually during the flu (influenza) season? Measures that ensure financial collapse and much more poverty world wide. The financial collapse has not been visible because AI-brookers world wide do not need a split second to buy up the sunken stocks. [? proof]
 A number of important matters and findings are not discussed in the media or by the government, while the necessary data can be found simply on the internet and even on the government's website.
 
 ### The origin
 
 The corona virus is patented, so there is an owner and / or discoverer and the virus is known. (source PL1: https://patents.google.com/patent/EP3172319B1/de?inventor=Erica+Bickerton - Screenshot_2020-03-17 EP3172319B1 - Coronavirus - Google Patents) (source PL2: https://patents.google. com / patent / US20060257852A1 / en? inventor = Erica + Bickerton - Screenshot_2020-03-17 US20060257852A1 - Severe acute respiratory syndrome coronavirus - Google Patents)
 
-### Recent findings
+### The 5g connection
 
-https://www.bitchute.com/video/kMMOaGG4gfbg/
+ https://www.bitchute.com/video/kMMOaGG4gfbg/
 
 text images..
-
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuFLiXkAAk2fT.jpg)
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuFkpWoAASDp4.jpg)
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuF68XQAAHxHT.jpg)
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuGPQXsAEUeB5.jpg)
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuMt-XkAAQN_E.jpg)
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuNDuWAAIVX2z.jpg)
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuNdWX0AAaVSl.jpg)
 
 ---
 
