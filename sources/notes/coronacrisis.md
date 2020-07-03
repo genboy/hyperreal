@@ -22,7 +22,16 @@ A number of important matters and findings are not discussed in the media or by 
 
 The corona virus is patented, so there is an owner and / or discoverer and the virus is known. (source PL1: https://patents.google.com/patent/EP3172319B1/de?inventor=Erica+Bickerton - Screenshot_2020-03-17 EP3172319B1 - Coronavirus - Google Patents) (source PL2: https://patents.google. com / patent / US20060257852A1 / en? inventor = Erica + Bickerton - Screenshot_2020-03-17 US20060257852A1 - Severe acute respiratory syndrome coronavirus - Google Patents)
 
-### The numbers
+### Recent findings
+
+https://www.bitchute.com/video/kMMOaGG4gfbg/
+
+text images..
+
+
+---
+
+### Numbers collected in March 2020
 
 In 2018, there were 138,000 deaths per year in the Netherlands (rounded down). (source NL1: Screenshot_2020-03-17 StatLine - Deaths; major causes of death (short list), age, gender.png)
 
