@@ -31,6 +31,8 @@
     The transgender agenda is definitely not what it seems. Innocent children are indoctonated through school, media and unconscious parents with the idea that you don't have to be a boy or girl. The real purpose of the transgender agenda is to make people question everything human or natural. This results in general uncertainty about yourself, your body and the world around you. This insecurity causes people to become very indifferent, unable to make good reasoning and resist inhuman acts, including accepting unknown technology in your mind and body.
     Over the past 40 years, society has been preparing for a technological singularity, a time when artificial intelligence exceeds the capabilities of the human brain and humans will have to share life with artificial entities at many levels of thought and action.
     The transgender agenda is part of this preparation, in the sense that many people will not accept being controlled by AI, but without conscious resistance, that is the most logical step in the process of world domination by those who have long been have power to create money.
+    
+    Bodily Autonomy - [Bodily Autonomy in the Corona World Order - #NewWorldNextWeek](https://www.bitchute.com/video/eLou2BS7gyY/)
 
 
 
