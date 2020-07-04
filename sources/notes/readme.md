@@ -34,7 +34,8 @@
     
     The loss of bodily and behavioral autonomy - [Bodily Autonomy in the Corona World Order - #NewWorldNextWeek](https://www.bitchute.com/video/eLou2BS7gyY/)
 
-
+The 3d printig revolution:
+- [Printing weapons](https://www.youtube.com/watch?v=SRoZv-EhFy0)
 
 
 
