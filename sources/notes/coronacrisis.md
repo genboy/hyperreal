@@ -37,6 +37,11 @@ text images..
 
 ---
 
+### Reflections 
+
+ - https://www.corbettreport.com/interview-1561-james-corbett-on-the-filter-podcast/
+ 
+
 ### Numbers collected in March 2020
 
 In 2018, there were 138,000 deaths per year in the Netherlands (rounded down). (source NL1: Screenshot_2020-03-17 StatLine - Deaths; major causes of death (short list), age, gender.png)
