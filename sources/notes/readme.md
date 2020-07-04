@@ -1,4 +1,4 @@
-Hyperreality
+# Hyperreality
 
 <p>&nbsp;</p>
 <p>Pre Hyperreal</p>
@@ -21,13 +21,19 @@ Hyperreality
 <p>&nbsp;</p>
 <p>&nbsp;</p>
 
+### Culture, Economy, Media, Science and Technology
 
-Economy
+  - Conservative capitalism or Neo liberalism, nothing changed
+      - World banks in ownership of private individuals controlling the monetary system and everything else in our world.
+        The fact that there is no law that forces private banks to truly own the money they lend out, but instead let private banks lend out money that does not excist yet, has created an exponentional depth in the future. At the moment a bank gets a signature by another entity that agrees to pay back the loan, that loan plus interrest is created out of nothing. Most people do not know where the money for their loan comes from and do not understand that this banking system only results in exponentional power of the private bank owners.
 
-Technology
+  - Postmodern uncertainties: Trans, [trannie] (https://www.flickr.com/photos/tags/trannie/) or infinite trance
+    The transgender agenda is definitely not what it seems. Innocent children are indoctonated through school, media and unconscious parents with the idea that you don't have to be a boy or girl. The real purpose of the transgender agenda is to make people question everything human or natural. This results in general uncertainty about yourself, your body and the world around you. This insecurity causes people to become very indifferent, unable to make good reasoning and resist inhuman acts, including accepting unknown technology in your mind and body.
+    Over the past 40 years, society has been preparing for a technological singularity, a time when artificial intelligence exceeds the capabilities of the human brain and humans will have to share life with artificial entities at many levels of thought and action.
+    The transgender agenda is part of this preparation, in the sense that many people will not accept being controlled by AI, but without conscious resistance, that is the most logical step in the process of world domination by those who have long been have power to create money.
 
-Science
 
-Culture
 
-Media
+
+
+
