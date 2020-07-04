@@ -22,11 +22,19 @@ A number of important matters and findings are not discussed in the media or by 
 
 The corona virus is patented, so there is an owner and / or discoverer and the virus is known. (source PL1: https://patents.google.com/patent/EP3172319B1/de?inventor=Erica+Bickerton - Screenshot_2020-03-17 EP3172319B1 - Coronavirus - Google Patents) (source PL2: https://patents.google. com / patent / US20060257852A1 / en? inventor = Erica + Bickerton - Screenshot_2020-03-17 US20060257852A1 - Severe acute respiratory syndrome coronavirus - Google Patents)
 
+---
+
+### Reflections 
+
+ - https://www.corbettreport.com/interview-1561-james-corbett-on-the-filter-podcast/
+ 
+ 
 ### The 5g connection
 
  https://www.bitchute.com/video/kMMOaGG4gfbg/
 
 text images..
+
 ![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuFLiXkAAk2fT.jpg)
 ![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuFkpWoAASDp4.jpg)
 ![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuF68XQAAHxHT.jpg)
@@ -36,10 +44,6 @@ text images..
 ![](https://github.com/genboy/hyperreal/blob/master/sources/media/EYxuNdWX0AAaVSl.jpg)
 
 ---
-
-### Reflections 
-
- - https://www.corbettreport.com/interview-1561-james-corbett-on-the-filter-podcast/
  
 
 ### Numbers collected in March 2020
