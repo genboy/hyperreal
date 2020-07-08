@@ -16,5 +16,7 @@ In hyperreality, it is assumed that our approaches become detached from ideal fo
  
  Read more https://github.com/genboy/hyperreal/blob/master/sources/notes/coronacrisis.md
  
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/bernays-on-manipulating-the-masses.jpg)
+ 
  
  
