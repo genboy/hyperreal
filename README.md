@@ -8,21 +8,19 @@ The term [Hyperreality](https://github.com/genboy/hyperreal/blob/master/hyperrea
 
 In daily life I notice that many people don't care about whether something is real or not, where it really comes from, whether it is true and what it really means. We just look to see if we can grasp it and give it value in our lives, or else we throw it away so that it doesn't become part of our invented reality. Probably because reality is actually quite complicated. In such a complicated way, in fact, that a lot of falsehoods come across as truths, so that we have developed a habit of living with falsehoods. And in a life made up of falsehoods it is extremely difficult to graps a sense of reality. In this way we can understand that many people assume no human can actually know what is real. 
 
-### "Don't you come to me to tell the truth, you ugly conspiracy theorist! Oh, and i know you are going to tell me my mind and moral senses have been hacked and programmed, so you know i do not feel responsible for anything i do."
+### "Don't you come to me to tell the truth, you ugly conspiracy theorist! Oh, and i know you are going to tell me my mind and moral senses have been hacked and programmed, so you know i do not feel responsible for anything i say or do."
 
-### Sources and reflections in the covid-19 paradigma
-
- - Bulgarian doctors and scientists contradict the lethality of covid-19 
-   https://off-guardian.org/2020/07/02/no-one-has-died-from-the-coronavirus-president-of-the-bulgarian-pathology-association/
- - https://www.corbettreport.com/interview-1561-james-corbett-on-the-filter-podcast/
  
- Read more https://github.com/genboy/hyperreal/blob/master/sources/notes/coronacrisis.md
- 
- 
-
-![Shaping the decline of the USA - John Coleman](https://github.com/genboy/hyperreal/blob/master/sources/documents/Shaping_The_Decline_Of_USA-Coleman_John.pdf)
+## There should be no denial; we are being manipulated
  
 ![](https://github.com/genboy/hyperreal/blob/master/sources/media/bernays-on-manipulating-the-masses.jpg)
+
+
+![Shaping the decline of the USA - John Coleman](https://github.com/genboy/hyperreal/blob/master/sources/documents/Shaping_The_Decline_Of_USA-Coleman_John.pdf)
+
+![](https://github.com/genboy/hyperreal/blob/master/sources/media/Where_Does_It_Hurt.png)
+
+
  
  
  
