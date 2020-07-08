@@ -1,7 +1,6 @@
-## World hack 2.0 - corrona virusses patented in 2006 - vaccine patented in 2019
-#### Mindcontrol, NLP and trauma based programming 
+## World hack 2.0 
 
-Here is Covid19, together with 5G networks, straight from our worlds largest and most powerfull dictatorial state China.
+# Here is Covid19, together with 5G networks, straight from our worlds largest and most powerfull dictatorial state China.
 
 And how does your goverment respond to this threat? Does science and rationality solve the puzzle?
 No, far from that. Goverments worldwide act exactly as China does! (unless you live in Sweden).
@@ -22,7 +21,12 @@ A number of important matters and findings are not discussed in the media or by 
 
 The corona virus is patented, so there is an owner and / or discoverer and the virus is known. (source PL1: https://patents.google.com/patent/EP3172319B1/de?inventor=Erica+Bickerton - Screenshot_2020-03-17 EP3172319B1 - Coronavirus - Google Patents) (source PL2: https://patents.google. com / patent / US20060257852A1 / en? inventor = Erica + Bickerton - Screenshot_2020-03-17 US20060257852A1 - Severe acute respiratory syndrome coronavirus - Google Patents)
 
----
+#### Sources and other voices in the covid-19 paradigma
+
+ - Bulgarian doctors and scientists contradict the lethality of covid-19 
+   https://off-guardian.org/2020/07/02/no-one-has-died-from-the-coronavirus-president-of-the-bulgarian-pathology-association/
+ - https://www.corbettreport.com/interview-1561-james-corbett-on-the-filter-podcast/
+
  
 ### The 5g connection
 
