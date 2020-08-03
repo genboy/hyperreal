@@ -12,6 +12,10 @@ Aristoteles
 Schopenhauer
 Kant 
 Sartre 
+Jean Baudrillard (Simulacra and Simulation)
+Umberto Eco (Travels In Hyperreality)
+Mikhail Epstein (Soviet hyperreality)
+Daniel Boorstin ('pseudo-events', hyperreal)
 Sigmund Freud / Barney
 Nietsche
 
