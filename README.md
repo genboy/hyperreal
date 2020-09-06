@@ -4,7 +4,10 @@
 # Welcome in the Hyperreal world
 
 A collection of observations and philosophy into the 21st century.
-The term [Hyperreality](https://github.com/genboy/hyperreal/blob/master/hyperreality.md) was first coined by [Jean Baudrillard](http://enterhyperreality.weebly.com/jean-baudrillard.html). In hyperreality, it is assumed that our approaches become detached from ideal forms, leaving our perceptions of reality based on other approaches, without the ability to restore the original true form. 
+The term [Hyperreality](https://github.com/genboy/hyperreal/blob/master/hyperreality.md) was first used by Daniel Boorstin and [Jean Baudrillard](http://enterhyperreality.weebly.com/jean-baudrillard.html). In hyperreality, it is assumed that our approaches become detached from ideal forms, leaving our perceptions of reality based on other approaches, without the ability to restore the original true form. 
+
+[Simulacra and Simulations- Jean Baudrillard](https://github.com/genboy/hyperreal/blob/master/sources/media/Baudrillard_Simulacra%20and%20Simulations.pdf)
+
 
 
 Preface
@@ -19,17 +22,7 @@ I notice that many people don't care about whether something is real or not, whe
   - ![Black & Psy Ops](https://github.com/genboy/hyperreal/blob/master/sources/notes/blackops.md)
 
 
-#### "Don't you come to me to tell the truth, you ugly conspiracy theorist! Oh, and i know you are going to tell me my mind and moral senses have been hacked and programmed, so you know i do not feel responsible for anything i say or do."
 
- 
-## There should be no denial; we are being manipulated
- 
-![](https://github.com/genboy/hyperreal/blob/master/sources/media/bernays-on-manipulating-the-masses.jpg)
-
-
-### ![Shaping the decline of the USA - John Coleman](https://github.com/genboy/hyperreal/blob/master/sources/documents/Shaping_The_Decline_Of_USA-Coleman_John.pdf)
-
-![](https://github.com/genboy/hyperreal/blob/master/sources/media/Where_Does_It_Hurt.png)
 
 
  
