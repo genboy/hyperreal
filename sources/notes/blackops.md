@@ -1,13 +1,21 @@
 ## Black Ops
-Operations that are classied and secret to the public
+Operations that are classied and/or secret to most of the public
 
 ---
 
-under research:
-
 ## Covid-19 agenda
 
-Info by Mr PARAdox https://www.bitchute.com/channel/mrparadox/
+How can patent requests on covid-19 testmethodes be filed in 2015?
+https://nl.espacenet.com/searchResults?submitted=true&locale=nl_NL&DB=EPODOC&ST=advanced&TI=&AB=&PN=us2020279585&AP=&PR=&PD=&PA=&IN=&CPC=&IC=
+
+Why do goverments pretend covid-19 is dangerous?
+https://www.who.int/bulletin/online_first/BLT.20.265892.pdf
+
+2 links above clearly show covid-19 is not about health but about planned world control in preparation of a 'great reset'.
+
+
+
+Following info by Mr PARAdox https://www.bitchute.com/channel/mrparadox/ is still under research
 
 https://www.bitchute.com/video/f1tspIGHGZn7/
 
