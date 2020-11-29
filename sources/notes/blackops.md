@@ -5,15 +5,30 @@ Operations that are classied and/or secret to most of the public
 
 ## Covid-19 agenda
 
+![Science silenced](https://raw.githubusercontent.com/genboy/hyperreal/master/sources/documents/2020/notalk_einstein.png)
+
+
+
 How can patent requests on covid-19 testmethodes be filed in 2015?
 https://nl.espacenet.com/searchResults?submitted=true&locale=nl_NL&DB=EPODOC&ST=advanced&TI=&AB=&PN=us2020279585&AP=&PR=&PD=&PA=&IN=&CPC=&IC=
+
+![Covid-19 since 2015](https://raw.githubusercontent.com/genboy/hyperreal/master/sources/documents/2020/Screenshot_2020-11-29%20Espacenet%20-%20weergave%20resultaten.png)
+
 
 Why do goverments pretend covid-19 is dangerous?
 https://www.who.int/bulletin/online_first/BLT.20.265892.pdf
 
-2 links above clearly show covid-19 is not about health but about planned world control in preparation of a 'great reset'.
+[pdf](https://github.com/genboy/hyperreal/blob/master/sources/documents/2020/BLT.20.265892.pdf)
 
 
+![](https://raw.githubusercontent.com/genboy/hyperreal/master/sources/documents/2020/Screenshot_2020-11-29%20Microsoft%20Word%20-%20BLT%2020%20265892%20docx%20-%20BLT%2020%20265892%20pdf.png)
+
+
+### 2 links above clearly show covid-19 is not about health or science
+
+but about planned world control in preparation of a 'great reset'.
+
+---
 
 Following info by Mr PARAdox https://www.bitchute.com/channel/mrparadox/ is still under research
 
