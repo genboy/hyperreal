@@ -23,8 +23,11 @@ https://www.who.int/bulletin/online_first/BLT.20.265892.pdf
 
 ![](https://raw.githubusercontent.com/genboy/hyperreal/master/sources/documents/2020/Screenshot_2020-11-29%20Microsoft%20Word%20-%20BLT%2020%20265892%20docx%20-%20BLT%2020%20265892%20pdf.png)
 
+Mullis about his invention the PCR-test: https://www.bitchute.com/video/wOSeTz57xrCF/ 
 
-### 2 links above clearly show covid-19 is not about health or science
+## [The PCR-test used to test covid-19 reviewed by world leading scientists](https://cormandrostenreview.com/report/)
+
+### Covid-19 is not about health or science
 
 but about planned world control in preparation of a 'great reset'.
 
