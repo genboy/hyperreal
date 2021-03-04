@@ -1,4 +1,5 @@
-![Lum](https://github.com/genboy/icon-art/blob/master/Fruit.gif)
+![Watching](https://github.com/genboy/hyperreal/blob/b4973af4fcbeb3d1c87930548f27061477c58ca1/sources/media/sevensamurai_watching.jpg)
+
 
 
 # Welcome in the Hyperreal world
@@ -20,6 +21,9 @@ I notice that many people don't care about whether something is real or not, whe
   - ![Hyperreality](https://github.com/genboy/hyperreal/blob/master/hyperreality.md) + ![notes](https://github.com/genboy/hyperreal/blob/master/sources/notes/readme.md)
   - ![Climate Debate](https://github.com/genboy/hyperreal/blob/master/sources/notes/climatedebates.md)
   - ![Black & Psy Ops](https://github.com/genboy/hyperreal/blob/master/sources/notes/blackops.md)
+
+![Lum](https://github.com/genboy/icon-art/blob/master/Fruit.gif)
+
 
 
 
